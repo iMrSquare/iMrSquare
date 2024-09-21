@@ -1,3 +1,3 @@
-![iMrSquare](https://blog.sqrnet.es/ximg/imrsquare-logo2.png)
+![iMrSquare](https://imrsquare.com/img/logo.png)
 ---
 ### Hi there 👋, Welcome a my profile!
